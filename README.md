@@ -1,4 +1,4 @@
-# Hi there, I'm [Your Name] 👋
+# Hi there, I'm Nataki 👋
 
 ### Technical Project Manager | Product Owner | Founder
 Entrepreneurial and results-driven **Technical Project Manager and Product Owner** with a proven track record of translating business requirements into scalable technical solutions. Fellow at **The Knowledge House**, Founder of **AnchorPoint Virtual Business Solutions**, and Operations & Project Lead at **Foresight Home Inspections LLC**. Passionate about Agile workflows, cross-functional execution, and operational efficiency.
